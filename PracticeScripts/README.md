@@ -1,1 +1,1 @@
-Practice Scripts are here
+Nathan Stinnett, Fall 2023, Chemistry, Junior
